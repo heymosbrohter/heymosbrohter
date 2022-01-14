@@ -1,0 +1,4 @@
+- An utensil contains lots of thoughts but constrained with coding ability
+- Dog and cat lover
+- By the way, call me heymosbrother anyway
+- Trying to devote myself into IOT and with to make progress in this vast world

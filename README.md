@@ -2,3 +2,4 @@
 - Dog and cat lover
 - By the way, call me heymosbrother anyway
 - Trying to devote myself into IOT and with to make progress in this vast world
+- tryna change a bit of things in my life
